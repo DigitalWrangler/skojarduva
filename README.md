@@ -20,7 +20,7 @@ The wilderness of collaboration beckons! I'm actively seeking companions for exp
 ## 📫 Get in Touch
 
 - LinkedIn: [Unleash the magic!](https://www.linkedin.com/in/vincent-wigardt-7367571b3/?trk=nav_responsive_tab_profile_pic&originalSubdomain=se)
-- Email: your.email@example.com
+- Email: melwaters1337@proton.com
 
 <!---
 DigitalWrangler/DigitalWrangler is a ✨ magical ✨ repository because its `README.md` (this file) appears on your GitHub profile.
