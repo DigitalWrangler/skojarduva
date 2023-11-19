@@ -19,7 +19,7 @@ I am actively seeking collaboration opportunities on projects. Let's build somet
 ## 📫 Get in Touch
 
 
-- LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/vincent-wigardt-7367571b3/?trk=nav_responsive_tab_profile_pic&originalSubdomain=se)
+- LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/vincent-wigardt-7367571b3/?trk=nav_responsive_tab_profile_pic&originalSubdomain=se)
 - Email: vincent.wigardt92@gmail.com
 
 
